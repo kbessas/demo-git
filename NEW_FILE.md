@@ -7,7 +7,3 @@ Tacos polaroid sustainable kale chips, blue bottle etsy chartreuse before they s
 Selvage skateboard migas art party. Affogato lumbersexual PBR&B freegan cred. Viral vexillologist tote bag keffiyeh scenester blog dreamcatcher chartreuse master cleanse organic cred food truck. Franzen retro wayfarers kogi fashion axe polaroid cliche tilde.
 
 Raw denim cornhole intelligentsia chillwave, VHS vinyl wayfarers synth artisan farm-to-table cliche whatever bespoke roof party street art. Fanny pack organic hot chicken venmo skateboard pug sustainable kombucha raw denim meh. Health goth subway tile yr portland, pok pok you probably haven't heard of them sriracha tumblr. Portland unicorn four dollar toast fanny pack deep v taiyaki snackwave, la croix seitan waistcoat mixtape kitsch cold-pressed.
-
-Oh. You need a little dummy text for your mockup? How quaint.
-
-I bet you’re still using Bootstrap too…
